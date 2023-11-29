@@ -18,3 +18,4 @@ Happy to benefit from your comments and commits on AntakIA Open Source edition !
 Let's keep in touch ! 
 contact@aividence.com
 
+Listen to [David presenting the company (in French)](https://www.youtube.com/watch?v=ahFJM-LVopg)
